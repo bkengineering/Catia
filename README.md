@@ -226,7 +226,8 @@ Meet our experienced Mechanical CAD instructor, with over 8 years of industry ex
 If you're looking for an experienced instructor to help you achieve your goals in the field of Mechanical CAD, look no further. Our instructor is committed to providing you with the skills and knowledge you need to succeed in the competitive world of Mechanical Design Engineering.
 
 ## Catia course Demo Video
-https://youtu.be/gmN_pc8zf44
+
+[https://youtu.be/gmN_pc8zf44](https://youtu.be/gmN_pc8zf44](https://youtu.be/gmN_pc8zf44))
 
 For more information, please contact us at **7981328897** or email us at **info@bk-engineering.in**.
 
